@@ -1,1 +1,0 @@
-# Fintech_Homework_5
